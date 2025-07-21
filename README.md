@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rahuldr2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zj9Pn2dgSLr2Fagi6icxUR2oMu7Ze55a/view?usp=sharing](https://drive.google.com/file/d/1zj9Pn2dgSLr2Fagi6icxUR2oMu7Ze55a/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1iNydIR6AxGf6x-FdYWZdcc8NPO62mBm9/view?usp=drive_link](https://drive.google.com/file/d/1zj9Pn2dgSLr2Fagi6icxUR2oMu7Ze55a/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
